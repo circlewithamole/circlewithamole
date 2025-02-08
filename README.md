@@ -41,6 +41,8 @@ Random facts about me
 - I fucking despise Two Times with every fiber of my being. That pretentious, condescending smile of theirs makes my skin crawl. I don't even know what it is about them, but every single thing about them rubs me the wrong way. I wish they'd just vanish into thin air, or better yet, get hit by a car or something. I'd take great pleasure in watching them suffer in agony #JusticeForAzure
 
 - I’m a certified Asian born and living in Asia, so English isn’t my first language
+  
+- Someone has asked this before, and nope, I am not a fictionkin nor an IRL of Circle. I consider myself more fictionhearted and just a general Circle enjoyer, lolz
 
 
 
