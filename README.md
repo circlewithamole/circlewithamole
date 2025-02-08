@@ -14,7 +14,7 @@ I’m neurodivergent (autistic and ADHD), which already makes me coolistic and m
 1. As I mentioned before, I’m really awkward in chats. I'm the most confident talking with those I’m close with. Sometimes I can get really quiet when hanging out I hope you don’t mind, because I also don’t mind if you do the same
 2. 	I might forget your name if I don’t know you well because I’m just a professional name-forgetter
 3. 	If you wanna interact or perhaps c + h with me, feel free to do so! Cuddling with people is fun :D
-4. 	If you’re gonna make a game, I’d suggest not making it anything suggestive because I’m a minor. Even aside from that, it’s just common sense to NOT be spitting out weird stuff at people you don’t know. I don’t think anybody would want that.
+4. 	If you’re gonna make a joke, I’d suggest not making it anything suggestive because I’m a minor. Even aside from that, it’s just common sense to NOT be spitting out weird stuff at people you don’t know. I don’t think anybody would want that.
 5. 	I really don’t mind ships (except the illegal ones—you know who I’m talking about) so if you see me cosplaying as a character and wanna ship it with yours, go for it. Just make sure to ask first
 6. I  might not completely respond to your texts most of the time. Either I’m off-tab or busy with something. If that’s the case, I’d recommend whispering 
 7. My humor is weird and sometimes just bad. If I make a joke and it doesn’t land, just pretend it did /j
