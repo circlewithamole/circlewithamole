@@ -31,7 +31,6 @@ Random Info:
    
 3.I fucking despise Two Times with every fiber of my being. That pretentious, condescending smile of theirs makes my skin crawl. I don't even know what it is about them, but every single thing about them rubs me the wrong way. I wish they'd just vanish into thin air, or better yet, get hit by a car or something. I'd take great pleasure in watching them suffer in agony #JusticeForAzure
 
-![holy shit its azure](https://github.com/user-attachments/assets/e660a4b6-b0da-4532-b0e4-051de1a2b0dc)
 
   
 
