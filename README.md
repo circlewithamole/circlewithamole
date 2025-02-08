@@ -8,17 +8,17 @@ Personality-wise, I’m a chill, laid-back ISTP 4w5. I’m into object shows (HF
 
 1. I’m awkward in chats. I’m most confident talking to people I’m close with, and I can get really quiet sometimes. If I go silent, don’t worry—I don’t mind if you do the same.
 
-2. I’m a professional name-forgetter. If I don’t know you well, I might forget your name. Sorry in advance!
+2. I’m a professional name-forgetter, so if I don’t know you well, I might forget your name. Sorry in advance!
 
-4. On PonyTown, feel free to interact or c + h with me. Cuddling with people is fun, so don’t be shy! /D
+4. On PonyTown, feel free to interact or c + h with me! Cuddling with people is fun, so don’t be shy! :D
 
-5. Keep jokes appropriate. I’m a minor, so please avoid anything suggestive. Honestly, it’s just common sense not to be weird with people you don’t know.
+5. Keep jokes appropriate because i’m a minor, so please avoid anything suggestive. And honestly, it’s just common sense not to be weird with people you don’t know
 
-6. I might not respond to texts right away. If I’m off-tab or busy, whispering me is the best way to get my attention.
+6. I might not respond to texts right away. If I’m off-tab or busy, whispering me is the best way to get my attention
 
-7. My humor is weird (and sometimes bad). If I make a joke that doesn’t land, just pretend it did. /j
+7. My humor is weird (and sometimes bad) if I make a joke that doesn’t land, just pretend it did /j
 
-8. I’m not great at small talk. If I respond dryly or don’t say much, it’s not because I don’t like you—I just don’t always know what to say.
+8. I’m not great at small talk, if I respond dryly or don’t say much, it’s not because I don’t like you I just don’t always know what to say
 
 9.If I don’t care about something, my reaction might be underwhelming. Please don’t take it personally!
 
@@ -26,21 +26,22 @@ Personality-wise, I’m a chill, laid-back ISTP 4w5. I’m into object shows (HF
 
 11. Don’t push me to do things. I have my own boundaries, and I’ll block you if you cross them.
     
-12. I can’t multitask conversations. If I’m talking to someone else, just wait until I’m done.
-
+12. I can’t multitask conversations. If I’m talking to someone else, just wait until I’m done
+    
 
 DNI List: Homophobic, transphobic, misogynistic, misandrists, racist, sexist, ableist, pedophile, sexualizes minors, proshippers, political people,supporters of controversial people, Liam Plecak. 
 
 
+Random facts about me
 
+- My interests change a lot. One week I’m obsessed with Friday Night Funkin’, and the next I’m all about Cookie Run. It’s chaos, but it’s fun
 
-Random facts:
-1. My interests can really vary and sometimes switch quickly, so for example, one week you’d find me liking Friday Night Funkin' and then the week after I would like Cookie Run 
-2. I love music, like a lot If you’re wondering, I mostly like alternative music and punk. Yes, there’s a mix of other genres here and there, but this is what I mostly like
-   
-3.I fucking despise Two Times with every fiber of my being. That pretentious, condescending smile of theirs makes my skin crawl. I don't even know what it is about them, but every single thing about them rubs me the wrong way. I wish they'd just vanish into thin air, or better yet, get hit by a car or something. I'd take great pleasure in watching them suffer in agony #JusticeForAzure
+- I love music—mostly alternative and punk, but there’s a mix of other genres in there too
 
-4. I’m a certified Asian born and living in Asia, so English isn’t my first language 
+- I fucking despise Two Times with every fiber of my being. That pretentious, condescending smile of theirs makes my skin crawl. I don't even know what it is about them, but every single thing about them rubs me the wrong way. I wish they'd just vanish into thin air, or better yet, get hit by a car or something. I'd take great pleasure in watching them suffer in agony #JusticeForAzure
+
+- I’m a certified Asian born and living in Asia, so English isn’t my first language
+
 
 
 Socials:
