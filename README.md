@@ -1,14 +1,8 @@
 
 # Intro
-Hi, I’m Circle, or Moth as others like to call me. As displayed on my profile, I am a very awesome person who’s got his own things going for him
+Hi, I’m Circle (or Moth, if you prefer). I’m an artistic, neurodivergent (autistic + ADHD) dude who loves creating all kinds of dumb stuff—drawing, painting, making questionable music, crafting, and occasionally animating. My art is fueled by either pure love or complete hatred, because that’s just how I roll.
 
-I’m an artistic individual who loves making all kinds of DUMB things whether it’s drawing, painting, making (bad) music, or crafting. I also animate, but that happens rarely. My art can be inspired by things I love or complete hatered, because that’s just how I roll
-
-Personality-wise, I’m just a chill guy. I can be laid-back and introverted, and if I had to be more specific, I’m an ISTP 4w5
-
-I’m into a lot of things, including object shows (especially HFJONE), Roblox games (too many to name), Minecraft, and the Backrooms. There’s more, but I’m not listing everything here
-
-I’m neurodivergent (autistic and ADHD), which already makes me coolistic and my four-wing on the Enneagram does that job too. Also, I’m not great at talking to people, like my social skills are okay, but I’m hella awkward. Most of the time, I just make gestures instead of talking. My sense of humor is trash, or maybe it just doesn’t exist. But hey, I try :P
+Personality-wise, I’m a chill, laid-back ISTP 4w5. I’m into object shows (HFJ0NE is a fav), Roblox, Minecraft, the Backrooms, and way too much else to list. Socially, I’m hella awkward—my humor is either trash or nonexistent, and I often communicate in gestures rather than words. But hey, I try. :P
 
  things you gotta know when you interact with me:
 1. As I mentioned before, I’m really awkward in chats. I'm the most confident talking with those I’m close with. Sometimes I can get really quiet when hanging out I hope you don’t mind, because I also don’t mind if you do the same
@@ -24,28 +18,25 @@ I’m neurodivergent (autistic and ADHD), which already makes me coolistic and m
 10.  Don’t force or push me to do things for you. I have my own boundaries, and I would appreciate it if you don’t break them, otherwise, I’ll just block you.
 11. I don’t know how to talk to two people at once, so just wait till I finish my convo with that person.
 
-Random Info:
+
+DNI List: Homophobic, transphobic, misogynistic, misandrists, racist, sexist, ableist, pedophile, sexualizes minors, proshippers, political people,supporters of controversial people, Liam Plecak. 
+
+
+
+
+Random facts:
 1. My interests can really vary and sometimes switch quickly, so for example, one week you’d find me liking Friday Night Funkin' and then the week after I would like Cookie Run 
 2. I love music, like a lot If you’re wondering, I mostly like alternative music and punk. Yes, there’s a mix of other genres here and there, but this is what I mostly like
    
 3.I fucking despise Two Times with every fiber of my being. That pretentious, condescending smile of theirs makes my skin crawl. I don't even know what it is about them, but every single thing about them rubs me the wrong way. I wish they'd just vanish into thin air, or better yet, get hit by a car or something. I'd take great pleasure in watching them suffer in agony #JusticeForAzure
+4. I’m a certified Asian living in Asia, so English isn’t my first language 
 
-
-  
-
-
-
-
-DNI List: Homophobic, transphobic, misogynistic, misandrists, racist, sexist, ableist, pedophile, sexualizes minors, proshippers, political people,supporters of controversial people, Liam Plecak. 
-
-https://github.com/user-attachments/assets/c93cc129-7f72-4c31-999d-0c628b54c960
 
 Socials:
 
 <a href="https://www.tumblr.com/blog/circlewithamole" style="color: blue; text-decoration: none;">Tumblr</a>
 <a href="https://bsky.app/profile/circlewithamole.bsky.social" style="color: blue; text-decoration: none;">Bluesky</a>
 <a href="https://imonthevergeoflosingit.straw.page" style="color: blue; text-decoration: none;">strawpage</a>
-<a href="https://en.pronouns.page/@circlewithamole" style="color: blue; text-decoration: none;">Pronouns.page</a>
 <a href="https://ca.pinterest.com/convertedPartypooper/" style="color: blue; text-decoration: none;">Pinterest</a>
 <a href="https://archiveofourown.org/users/circlewithamole" style="color: blue; text-decoration: none;">Archive of Our Own</a>
 <a href="https://www.roblox.com/users/1715948456/profile" style="color: blue; text-decoration: none;">Roblox Profile</a>
