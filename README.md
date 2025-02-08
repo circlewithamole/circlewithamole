@@ -1,5 +1,4 @@
 
-https://github.com/user-attachments/assets/c93cc129-7f72-4c31-999d-0c628b54c960
 # Intro
 Hi, I’m Circle, or Moth as others like to call me. As displayed on my profile, I am a very awesome person who’s got his own things going for him
 
@@ -39,7 +38,9 @@ Random Info:
 
 
 
-DNI List: Homophobic, transphobic, misogynistic, misandrists, racist, sexist, ableist, pedophile, sexualizes minors, proshippers, political people,supporters of controversial people, Liam Plecak.
+DNI List: Homophobic, transphobic, misogynistic, misandrists, racist, sexist, ableist, pedophile, sexualizes minors, proshippers, political people,supporters of controversial people, Liam Plecak. 
+
+https://github.com/user-attachments/assets/c93cc129-7f72-4c31-999d-0c628b54c960
 
 Socials:
 
