@@ -1,8 +1,8 @@
 
 # Intro
-Hi, I’m Circle (or Moth, if you prefer). I’m an artistic, neurodivergent (autistic + ADHD) dude who loves creating all kinds of dumb stuff—drawing, painting, making questionable music, crafting, and occasionally animating. My art is fueled by either pure love or complete hatred, because that’s just how I roll.
+Hi, I’m Circle (or Moth, if you prefer). I’m an artistic, neurodivergent (autistic + ADHD) dude who loves creating all kinds of dumb stuff like drawing, painting, making questionable music, crafting, and occasionally animating which is fueled by either pure love or complete hatred, bcz that’s just how I roll
 
-Personality-wise, I’m a chill, laid-back ISTP 4w5. I’m into object shows (HFJ0NE is a fav), Roblox, Minecraft, the Backrooms, and way too much else to list. Socially, I’m hella awkward—my humor is either trash or nonexistent, and I often communicate in gestures rather than words. But hey, I try :P
+Personality-wise, I’m a chill, laid-back ISTP 4w5. I’m into object shows (HFJ0NE is a fav), Roblox, Minecraft, the Backrooms, and way too much else to list. Socially, I’m hella awkward my humor is either trash or nonexistent, and I often communicate in gestures rather than words. But hey, I try :P
 
  things you gotta know when you interact with me:
 
