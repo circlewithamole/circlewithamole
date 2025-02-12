@@ -8,7 +8,7 @@ Personality-wise, I’m a chill, laid-back ISTP 4w5. I’m into object shows (HF
 
 1. I’m awkward in chats. I’m most confident talking to people I’m close with, and I can get really quiet sometimes. If I go silent, don’t worry—I don’t mind if you do the same
 
-2. I’m a professional name-forgetter, so if I don’t know you well, I might forget your name. Sorry in advance!
+2. I’m a professional name-forgetter, so if I don’t know you well, I might forget your name
 
 4. On PonyTown, feel free to interact or c + h with me! Cuddling with people is fun, so don’t be shy! :D
 
@@ -27,6 +27,8 @@ Personality-wise, I’m a chill, laid-back ISTP 4w5. I’m into object shows (HF
 11. Don’t push me to do things. I have my own boundaries, and I wont hesitate to block you if you cross them.
     
 12. I can’t multitask conversations. If I’m talking to someone else, just wait until I’m done
+   
+13. I don’t allow copying my pony, but it’s fine to take inspiration!
     
 
 DNI List: Homophobic, transphobic, misogynistic, misandrists, racist, sexist, ableist, pedophile, sexualizes minors, proshippers, political people,supporters of controversial people, Liam Plecak. 
