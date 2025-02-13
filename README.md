@@ -28,7 +28,12 @@ Personality-wise, I’m a chill, laid-back ISTP 4w5. I’m into object shows (HF
     
 12. I can’t multitask conversations. If I’m talking to someone else, just wait until I’m done
    
-13. I don’t allow copying my pony, but it’s fine to take inspiration!
+13. I don’t allow copying my ponies, but it’s fine to take inspiration :-)
+
+14. I usually check out other people's pages and sign there. If you notice a small doodle on your gimmis, you'll know who it is (just kidding, maybe o_o)
+
+
+  
     
 
 DNI List: Homophobic, transphobic, misogynistic, misandrists, racist, sexist, ableist, pedophile, sexualizes minors, proshippers, political people,supporters of controversial people, Liam Plecak. 
