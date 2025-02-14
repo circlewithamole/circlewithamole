@@ -49,12 +49,7 @@ Random facts about me
 
 - I fucking despise Two Times with every fiber of my being. That pretentious, condescending smile of theirs makes my skin crawl. I ont even know what it is about them, but every single thing about them rubs me the wrong way. I wish they'd just vanish into thin air, or better yet, get hit by a car or something. I'd take great pleasure in watching them suffer in agony #JusticeForAzure
 
-- I’m a certified Asian born and living in Asia, so English isn’t my first language
-  
-- I like roblox
-
-- I often mispell words on purpose 
-Socials:
+- ham
 
 <a href="https://www.tumblr.com/blog/circlewithamole" style="color: blue; text-decoration: none;">Tumblr</a>
 <a href="https://bsky.app/profile/circlewithamole.bsky.social" style="color: blue; text-decoration: none;">Bluesky</a>
