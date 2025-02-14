@@ -1,5 +1,7 @@
 
 # Intro
+![image](https://github.com/user-attachments/assets/59bf0b96-d828-4a2b-a350-2e7ea6926762)
+
 Hi, I’m Circle (or Moth, if you prefer). I’m an artistic, neurodivergent (autistic + ADHD) dude who loves creating all kinds of dumb stuff like drawing, painting, making questionable music, crafting, and occasionally animating which is fueled by either pure love or complete hatred, bcz that’s just how I roll
 
 Personality-wise, I’m a chill, laid-back ISTP 4w5. I’m into object shows (HFJ0NE is a fav), Roblox, Minecraft, the Backrooms, and way too much else to list. Socially, I’m hella awkward my humor is either trash or nonexistent, and I often communicate in gestures rather than words. But hey, I try :P
@@ -49,7 +51,9 @@ Random facts about me
 
 - I’m a certified Asian born and living in Asia, so English isn’t my first language
   
+- I like roblox
 
+- I often mispell words on purpose 
 Socials:
 
 <a href="https://www.tumblr.com/blog/circlewithamole" style="color: blue; text-decoration: none;">Tumblr</a>
@@ -86,5 +90,7 @@ Socials:
   <img src="https://github.com/user-attachments/assets/af278fd4-e3e6-411c-b6b1-2f01c1b068f5" alt="Image 22" width="150">
   <img src="https://github.com/user-attachments/assets/c7b453d5-5df4-45a3-b468-43828523216d" alt="Image 23" width="150">
   <img src="https://github.com/user-attachments/assets/9b020b2e-2045-4ca8-a7e6-5c14fc0c7e89" alt="Image 24" width="150">
+ <img src="https://github.com/user-attachments/assets/7c91fb6b-29f2-4f97-a92c-8d2c972775f1" alt="New Image" width="150">
+ <img src="https://github.com/user-attachments/assets/5ae950ff-e3bc-4d22-af5c-2f0bd9aee9cd" alt="Latest Image" width="150">
 </div>
 
