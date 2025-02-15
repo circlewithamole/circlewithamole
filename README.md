@@ -32,7 +32,7 @@ Personality-wise, I’m a chill, laid-back ISTP 4w5. I’m into object shows (HF
    
 13. I don’t allow copying my ponies, but it’s fine to take inspiration :-)
 
-14. I usually check out other people's pages and sign there. If you notice a small doodle on your gimmis, you'll know who it is (just kidding, maybe o_o)
+14. I usually check out other people's pages and sometimes sign there. If you notice a small doodle on your gimmis, you'll know who it is (just kidding, maybe o_o)
 
 
   
@@ -48,6 +48,7 @@ Random facts about me
 - I love music—mostly alternative and punk, but there’s a mix of other genres in there too
 
 - I fucking despise Two Times with every fiber of my being. That pretentious, condescending smile of theirs makes my skin crawl. I ont even know what it is about them, but every single thing about them rubs me the wrong way. I wish they'd just vanish into thin air, or better yet, get hit by a car or something. I'd take great pleasure in watching them suffer in agony #JusticeForAzure
+- I ama certified asian 
 
 - ham
 
