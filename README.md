@@ -8,31 +8,31 @@ Personality-wise, I’m a chill, laid-back ISTP 4w5. I’m into object shows (HF
 
  things you gotta know when you interact with me:
 
-1. I’m awkward in chats. I’m most confident talking to people I’m close with, and I can get really quiet sometimes. If I go silent, don’t worry—I don’t mind if you do the same
+- I’m awkward in chats. I’m most confident talking to people I’m close with, and I can get really quiet sometimes. If I go silent, don’t worry—I don’t mind if you do the same
 
-2. I’m a professional name-forgetter, so if I don’t know you well, I might forget your name
+- I’m a professional name-forgetter, so if I don’t know you well, I might forget your name
 
-4. On PonyTown, feel free to interact or c + h with me! Cuddling with people is fun, so don’t be shy! :D
+-  On PonyTown, feel free to interact or c + h with me! Cuddling with people is fun, so don’t be shy! :D
 
-5. If ur gonna make a joke I’d suggest you keep it appropriate because i’m a minor. And honestly, it’s just common sense not to be weird with people you don’t know
+- If ur gonna make a joke I’d suggest you keep it appropriate because i’m a minor. And honestly, it’s just common sense not to be weird with people you don’t know
 
-6. I might not respond to texts right away. If I’m off-tab or busy, whispering me is the best way to get my attention
+- I might not respond to texts right away. If I’m off-tab or busy, whispering me is the best way to get my attention
 
-7. My humor is weird (and sometimes bad) if I make a joke that doesn’t land, just pretend it did /j
+- My humor is weird (and sometimes bad) if I make a joke that doesn’t land, just pretend it did /j
 
-8. I’m not great at small talk, if I respond dryly or don’t say much, it’s not because I don’t like you I just don’t always know what to say
+- I’m not great at small talk, if I respond dryly or don’t say much, it’s not because I don’t like you I just don’t always know what to say
 
-9.If I don’t care about something, my reaction might be underwhelming. Please don’t take it personally!
+- If I don’t care about something, my reaction might be underwhelming. Please don’t take it personally!
 
-10. If I seem to ignore a message, I probably missed it or didn’t know how to respond. Feel free to poke me about it! :<
+- If I seem to ignore a message, I probably missed it or didn’t know how to respond. Feel free to poke me about it! :<
 
-11. Don’t push me to do things. I have my own boundaries, and I wont hesitate to block you if you cross them.
+- Don’t push me to do things. I have my own boundaries, and I wont hesitate to block you if you cross them.
     
-12. I can’t multitask conversations. If I’m talking to someone else, just wait until I’m done
+- I can’t multitask conversations. If I’m talking to someone else, just wait until I’m done
    
-13. I don’t allow copying my ponies, but it’s fine to take inspiration :-)
+- I don’t allow copying my ponies, but it’s fine to take inspiration :-)
 
-14. I usually check out other people's pages and sometimes sign there. If you notice a small doodle on your gimmis, you'll know who it is (just kidding, maybe o_o)
+- I usually check out other people's pages and sometimes sign there. If you notice a small doodle on your gimmis, you'll know who it is (just kidding, maybe o_o)
 
 
   
@@ -43,11 +43,12 @@ DNI List: Homophobic, transphobic, misogynistic, misandrists, racist, sexist, ab
 
 Random facts about me
 
-- My interests change a lot. One week I’m obsessed with Friday Night Funkin’, and the next I’m all about Cookie Run
+- My interests change a lot :P
 
 - I love music—mostly alternative and punk, but there’s a mix of other genres in there too
 
-- I fucking despise Two Times with every fiber of my being. That pretentious, condescending smile of theirs makes my skin crawl. I ont even know what it is about them, but every single thing about them rubs me the wrong way. I wish they'd just vanish into thin air, or better yet, get hit by a car or something. I'd take great pleasure in watching them suffer in agony #JusticeForAzure
+- I fucking despise Two Times with every fiber of my being.
+  
 - I ama certified asian 
 
 - ham
