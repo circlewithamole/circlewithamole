@@ -10,8 +10,6 @@ Personality-wise, I’m a chill, laid-back ISTP 4w5. I’m into object shows (HF
 
 - I’m awkward in chats. I’m most confident talking to people I’m close with, and I can get really quiet sometimes. If I go silent, don’t worry—I don’t mind if you do the same
 
-- I’m a professional name-forgetter, so if I don’t know you well, I might forget your name
-
 -  On PonyTown, feel free to interact or c + h with me! Cuddling with people is fun, so don’t be shy! :D
 
 - If ur gonna make a joke I’d suggest you keep it appropriate because i’m a minor. And honestly, it’s just common sense not to be weird with people you don’t know
@@ -41,7 +39,7 @@ Personality-wise, I’m a chill, laid-back ISTP 4w5. I’m into object shows (HF
 DNI List: Homophobic, transphobic, misogynistic, misandrists, racist, sexist, ableist, pedophile, sexualizes minors, proshippers, political people,supporters of controversial people, Liam Plecak. 
 
 
-Random facts about me
+Random facts 
 
 - My interests change a lot :P
 
@@ -49,8 +47,12 @@ Random facts about me
 
 - I fucking despise Two Times with every fiber of my being.
   
-- I ama certified asian 
+- I ama certified asian
+  
+- I’m a professional name-forgetter, so if I don’t know you well, I might forget your name
 
+- I can be kinda clingy sometimes q_q
+  
 - ham
 
 <a href="https://www.tumblr.com/blog/circlewithamole" style="color: blue; text-decoration: none;">Tumblr</a>
