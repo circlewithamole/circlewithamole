@@ -39,21 +39,7 @@ Personality-wise, I’m a chill, laid-back ISTP 4w5. I’m into object shows (HF
 DNI List: Homophobic, transphobic, misogynistic, misandrists, racist, sexist, ableist, pedophile, sexualizes minors, proshippers, political people,supporters of controversial people, Liam Plecak. 
 
 
-Random facts 
 
-- My interests change a lot :P
-
-- I love music—mostly alternative and punk, but there’s a mix of other genres in there too
-
-- I fucking despise Two Times with every fiber of my being.
-  
-- I ama certified asian
-  
-- I’m a professional name-forgetter, so if I don’t know you well, I might forget your name
-
-- I can be kinda clingy sometimes q_q
-  
-- ham
 
 <a href="https://www.tumblr.com/blog/circlewithamole" style="color: blue; text-decoration: none;">Tumblr</a>
 <a href="https://bsky.app/profile/circlewithamole.bsky.social" style="color: blue; text-decoration: none;">Bluesky</a>
