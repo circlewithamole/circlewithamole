@@ -1,6 +1,7 @@
 
 # Intro
-![image](https://github.com/user-attachments/assets/59bf0b96-d828-4a2b-a350-2e7ea6926762)
+![image](https://github.com/user-attachments/assets/1afe313e-c1ce-48b2-96df-eba96f15b1f9)
+
 
 Hi, I’m Circle (or Moth, if you prefer). I’m an artistic, neurodivergent (autistic + ADHD) dude who loves creating all kinds of dumb stuff like drawing, painting, making questionable music, crafting, and occasionally animating which is fueled by either pure love or complete hatred, bcz that’s just how I roll
 
