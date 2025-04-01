@@ -9,7 +9,7 @@ Personality-wise, I’m a chill, laid-back ISTP 4w5. I’m into object shows (HF
 
  things you gotta know when you interact with me:
 
-- I’m awkward in chats. I’m most confident talking to people I’m close with, and I can get really quiet sometimes. If I go silent, don’t worry—I don’t mind if you do the same
+- I’m awkward in chats. I’m most confident talking to people I’m close with, and I can get really quiet sometimes. If I go silent, don’t worry I don’t mind if you do the same
 
 -  On PonyTown, feel free to interact or c + h with me! Cuddling with people is fun, so don’t be shy! :D
 
@@ -47,6 +47,7 @@ DNI List: Homophobic, transphobic, misogynistic, misandrists, racist, sexist, ab
 <a href="https://imonthevergeoflosingit.straw.page" style="color: blue; text-decoration: none;">strawpage</a>
 <a href="https://ca.pinterest.com/convertedPartypooper/" style="color: blue; text-decoration: none;">Pinterest</a>
 <a href="https://archiveofourown.org/users/circlewithamole" style="color: blue; text-decoration: none;">Archive of Our Own</a>
+<a href="https://en.pronouns.page/@circlewithamole" style="color: blue; text-decoration: none;">Pronouns Page</a>
 <a href="https://www.roblox.com/users/1715948456/profile" style="color: blue; text-decoration: none;">Roblox Profile</a>
 <div align="center">
 
@@ -62,13 +63,13 @@ DNI List: Homophobic, transphobic, misogynistic, misandrists, racist, sexist, ab
   <img src="https://github.com/user-attachments/assets/ad5924ba-9086-4d60-8dbf-58e663f9632d" alt="Image 8" width="150">
   <img src="https://github.com/user-attachments/assets/34693935-563b-437c-9dbf-5cad348f302f" alt="Image 9" width="150">
   <img src="https://github.com/user-attachments/assets/2f5a8408-41e8-46e2-aed9-b0475cbd9c28" alt="Image 10" width="150">
-  <img src="https://github.com/user-attachments/assets/e0a3c085-33ab-40ee-990f-ca59b31de28b" alt="Image 11" width="150">
+
   <img src="https://github.com/user-attachments/assets/b95fd07a-dc1e-48a6-8073-b4e6568480c2" alt="Image 12" width="150">
   <img src="https://github.com/user-attachments/assets/920d0db1-7f86-46f7-a7f4-04ced5e067b9" alt="Image 13" width="250">
   <img src="https://github.com/user-attachments/assets/95a39d68-51b5-44be-8685-41ebc181ad3f" alt="Image 14" width="250">
   <img src="https://github.com/user-attachments/assets/8f57b5e3-7e25-4c1f-add4-25758c8f3585" alt="Image 15" width="250">
   <img src="https://github.com/user-attachments/assets/f4c35449-8b79-4489-b131-a94a8935eb79" alt="Image 16" width="250">
-  <img src="https://github.com/user-attachments/assets/8e001d01-36dd-4e79-8952-e3c23cbbc8e0" alt="Image 17" width="250">
+
   <img src="https://github.com/user-attachments/assets/27fd6bcf-cf9f-4de5-9fda-d94ce11b5fd3" alt="Image 18" width="250">
   <img src="https://github.com/user-attachments/assets/a8e12b6d-ee0e-4128-94d3-e116d60665c3" alt="Image 19" width="150">
   <img src="https://github.com/user-attachments/assets/d2b44c1c-4ff1-402d-b40e-8357c8eadf40" alt="Image 20" width="150">
