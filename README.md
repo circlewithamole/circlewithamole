@@ -84,12 +84,3 @@ DNI List: Homophobic, transphobic, misogynistic, misandrists, racist, sexist, ab
  <img src="https://github.com/user-attachments/assets/5ae950ff-e3bc-4d22-af5c-2f0bd9aee9cd" alt="Latest Image" width="150">
 </div>
 
-
-  <img src="https://github.com/user-attachments/assets/4a5704c9-f03f-4284-9e3e-e3d4343f0032" alt="Image 21" width="150">
-  <img src="https://github.com/user-attachments/assets/af278fd4-e3e6-411c-b6b1-2f01c1b068f5" alt="Image 22" width="150">
-  <img src="https://github.com/user-attachments/assets/c7b453d5-5df4-45a3-b468-43828523216d" alt="Image 23" width="150">
-  <img src="https://github.com/user-attachments/assets/9b020b2e-2045-4ca8-a7e6-5c14fc0c7e89" alt="Image 24" width="150">
- <img src="https://github.com/user-attachments/assets/7c91fb6b-29f2-4f97-a92c-8d2c972775f1" alt="New Image" width="150">
- <img src="https://github.com/user-attachments/assets/5ae950ff-e3bc-4d22-af5c-2f0bd9aee9cd" alt="Latest Image" width="150">
-</div>
-
