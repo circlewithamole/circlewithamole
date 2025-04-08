@@ -8,23 +8,19 @@ Hi, I’m Circle (or Moth, if you prefer). I’m an artistic, neurodivergent (au
 Personality-wise, I’m a chill, laid-back ISTP 4w5. I’m into object shows (HFJ0NE is a fav), Roblox, Minecraft, the Backrooms, and way too much else to list. Socially, I’m hella awkward my humor is either trash or nonexistent, and I often communicate in gestures rather than words. But hey, I try :P
 
 ![image](https://github.com/user-attachments/assets/a86f3eb0-1fb6-4713-a462-8362c7b5ca07)
+
  things you gotta know when you interact with me:
 
 - I’m awkward in chats. I’m most confident talking to people I’m close with, and I can get really quiet sometimes. If I go silent, don’t worry I don’t mind if you do the same
-  
-![image](https://github.com/user-attachments/assets/a86f3eb0-1fb6-4713-a462-8362c7b5ca07)
+ 
 -  On PonyTown, feel free to interact or c + h with me! Cuddling with people is fun, so don’t be shy! :D
  
-
-![image](https://github.com/user-attachments/assets/a86f3eb0-1fb6-4713-a462-8362c7b5ca07)
 - If ur gonna make a joke I’d suggest you keep it appropriate because i’m a minor. And honestly, it’s just common sense not to be weird with people you don’t know
-![image](https://github.com/user-attachments/assets/68cb46de-7d35-4d3c-9af1-b486ec1baff1)
 
 - I might not respond to texts right away. If I’m off-tab or busy, whispering me is the best way to get my attention
-![image](https://github.com/user-attachments/assets/1b818099-e038-46f5-8f25-baf60b521f07)
 
 - My humor is weird (and sometimes bad) if I make a joke that doesn’t land, just pretend it did /j
-![image](https://github.com/user-attachments/assets/32546b23-9277-4116-8653-671493f65c4b)
+
 
 - I’m not great at small talk, if I respond dryly or don’t say much, it’s not because I don’t like you I just don’t always know what to say
 
