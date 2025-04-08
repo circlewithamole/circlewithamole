@@ -15,7 +15,7 @@ Personality-wise, I’m a chill, laid-back ISTP 4w5. I’m into object shows (HF
 ![image](https://github.com/user-attachments/assets/30a7bbc6-808c-4cc0-91c9-3b78808c2c60)
 
 
- things you gotta know when you interact with me:
+![image](https://github.com/user-attachments/assets/208a2f73-aec5-43c3-9063-d6e24800d7f6) things you gotta know when you interact with me:
 
 - I’m awkward in chats. I’m most confident talking to people I’m close with, and I can get really quiet sometimes. If I go silent, don’t worry I don’t mind if you do the same
  
@@ -52,19 +52,19 @@ Personality-wise, I’m a chill, laid-back ISTP 4w5. I’m into object shows (HF
 ![image](https://github.com/user-attachments/assets/2c21e9d1-5298-4667-afe4-f96b8a138654)
 
 
-DNI List: Homophobic, transphobic, misogynistic, misandrists, racist, sexist, ableist, pedophile, sexualizes minors, proshippers, political people,supporters of controversial people, Liam Plecak. 
+![image](https://github.com/user-attachments/assets/208a2f73-aec5-43c3-9063-d6e24800d7f6) DNI List: Homophobic, transphobic, misogynistic, misandrists, racist, sexist, ableist, pedophile, sexualizes minors, proshippers, political people,supporters of controversial people, Liam Plecak. 
 
 ![image](https://github.com/user-attachments/assets/1681ea9a-64c0-4cea-b578-bfec135c9916)
 
 
 
-<a href="https://www.tumblr.com/blog/circlewithamole" style="color: blue; text-decoration: none;">Tumblr</a>
-<a href="https://bsky.app/profile/circlewithamole.bsky.social" style="color: blue; text-decoration: none;">Bluesky</a>
-<a href="https://imonthevergeoflosingit.straw.page" style="color: blue; text-decoration: none;">strawpage</a>
-<a href="https://ca.pinterest.com/convertedPartypooper/" style="color: blue; text-decoration: none;">Pinterest</a>
-<a href="https://archiveofourown.org/users/circlewithamole" style="color: blue; text-decoration: none;">Archive of Our Own</a>
-<a href="https://en.pronouns.page/@circlewithamole" style="color: blue; text-decoration: none;">Pronouns Page</a>
-<a href="https://www.roblox.com/users/1715948456/profile" style="color: blue; text-decoration: none;">Roblox Profile</a>
+<a href="https://www.tumblr.com/blog/circlewithamole" style="color: blue; text-decoration: none;">Tumblr</a> ..
+<a href="https://bsky.app/profile/circlewithamole.bsky.social" style="color: blue; text-decoration: none;">Bluesky</a> ..
+<a href="https://imonthevergeoflosingit.straw.page" style="color: blue; text-decoration: none;">strawpage</a> ..
+<a href="https://ca.pinterest.com/convertedPartypooper/" style="color: blue; text-decoration: none;">Pinterest</a> ..
+<a href="https://archiveofourown.org/users/circlewithamole" style="color: blue; text-decoration: none;">Archive of Our Own</a> ..
+<a href="https://en.pronouns.page/@circlewithamole" style="color: blue; text-decoration: none;">Pronouns Page</a> .. 
+<a href="https://www.roblox.com/users/1715948456/profile" style="color: blue; text-decoration: none;">Roblox Profile</a> 
 <div align="center">
 
 
