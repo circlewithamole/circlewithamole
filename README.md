@@ -8,6 +8,12 @@ Hi, I’m Circle (or Moth, if you prefer). I’m an artistic, neurodivergent (au
 Personality-wise, I’m a chill, laid-back ISTP 4w5. I’m into object shows (HFJ0NE is a fav), Roblox, Minecraft, the Backrooms, and way too much else to list. Socially, I’m hella awkward my humor is either trash or nonexistent, and I often communicate in gestures rather than words. But hey, I try :P
 
 ![image](https://github.com/user-attachments/assets/a86f3eb0-1fb6-4713-a462-8362c7b5ca07)
+![image](https://github.com/user-attachments/assets/89a61b10-5df0-4368-b4d8-e44865666dd3)
+![image](https://github.com/user-attachments/assets/8ec268c8-043f-48ee-b899-f8b1c332ee9f)
+![image](https://github.com/user-attachments/assets/ce474a89-bb2d-4a1b-a5f9-e51cb3192959)
+![image](https://github.com/user-attachments/assets/41b09cb8-4f91-4309-b85e-711f026e8cae)
+![image](https://github.com/user-attachments/assets/30a7bbc6-808c-4cc0-91c9-3b78808c2c60)
+
 
  things you gotta know when you interact with me:
 
@@ -36,12 +42,19 @@ Personality-wise, I’m a chill, laid-back ISTP 4w5. I’m into object shows (HF
 
 - I usually check out other people's pages and sometimes sign there. If you notice a small doodle on your gimmis, you'll know who it is (just kidding, maybe o_o)
 
+ ![image](https://github.com/user-attachments/assets/30a7bbc6-808c-4cc0-91c9-3b78808c2c60)
+  ![image](https://github.com/user-attachments/assets/41b09cb8-4f91-4309-b85e-711f026e8cae)
+  ![image](https://github.com/user-attachments/assets/ce474a89-bb2d-4a1b-a5f9-e51cb3192959)
+  ![image](https://github.com/user-attachments/assets/89a61b10-5df0-4368-b4d8-e44865666dd3)
+  ![image](https://github.com/user-attachments/assets/a86f3eb0-1fb6-4713-a462-8362c7b5ca07)
 
-  
-    
+
+![image](https://github.com/user-attachments/assets/2c21e9d1-5298-4667-afe4-f96b8a138654)
+
 
 DNI List: Homophobic, transphobic, misogynistic, misandrists, racist, sexist, ableist, pedophile, sexualizes minors, proshippers, political people,supporters of controversial people, Liam Plecak. 
 
+![image](https://github.com/user-attachments/assets/1681ea9a-64c0-4cea-b578-bfec135c9916)
 
 
 
