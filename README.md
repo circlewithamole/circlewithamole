@@ -1,23 +1,30 @@
-
-# Intro
-![image](https://github.com/user-attachments/assets/1afe313e-c1ce-48b2-96df-eba96f15b1f9)
+![image](https://github.com/user-attachments/assets/1ef16919-adde-4269-806c-d9be1dea0288)
 
 
+![image](https://github.com/user-attachments/assets/4b444ea4-2aab-4153-a51b-7b7437b606f5)
 Hi, I’m Circle (or Moth, if you prefer). I’m an artistic, neurodivergent (autistic + ADHD) dude who loves creating all kinds of dumb stuff like drawing, painting, making questionable music, crafting, and occasionally animating which is fueled by either pure love or complete hatred, bcz that’s just how I roll
 
+![image](https://github.com/user-attachments/assets/208a2f73-aec5-43c3-9063-d6e24800d7f6)
 Personality-wise, I’m a chill, laid-back ISTP 4w5. I’m into object shows (HFJ0NE is a fav), Roblox, Minecraft, the Backrooms, and way too much else to list. Socially, I’m hella awkward my humor is either trash or nonexistent, and I often communicate in gestures rather than words. But hey, I try :P
 
+![image](https://github.com/user-attachments/assets/a86f3eb0-1fb6-4713-a462-8362c7b5ca07)
  things you gotta know when you interact with me:
 
 - I’m awkward in chats. I’m most confident talking to people I’m close with, and I can get really quiet sometimes. If I go silent, don’t worry I don’t mind if you do the same
-
+  
+![image](https://github.com/user-attachments/assets/a86f3eb0-1fb6-4713-a462-8362c7b5ca07)
 -  On PonyTown, feel free to interact or c + h with me! Cuddling with people is fun, so don’t be shy! :D
+ 
 
+![image](https://github.com/user-attachments/assets/a86f3eb0-1fb6-4713-a462-8362c7b5ca07)
 - If ur gonna make a joke I’d suggest you keep it appropriate because i’m a minor. And honestly, it’s just common sense not to be weird with people you don’t know
+![image](https://github.com/user-attachments/assets/68cb46de-7d35-4d3c-9af1-b486ec1baff1)
 
 - I might not respond to texts right away. If I’m off-tab or busy, whispering me is the best way to get my attention
+![image](https://github.com/user-attachments/assets/1b818099-e038-46f5-8f25-baf60b521f07)
 
 - My humor is weird (and sometimes bad) if I make a joke that doesn’t land, just pretend it did /j
+![image](https://github.com/user-attachments/assets/32546b23-9277-4116-8653-671493f65c4b)
 
 - I’m not great at small talk, if I respond dryly or don’t say much, it’s not because I don’t like you I just don’t always know what to say
 
@@ -73,6 +80,15 @@ DNI List: Homophobic, transphobic, misogynistic, misandrists, racist, sexist, ab
   <img src="https://github.com/user-attachments/assets/27fd6bcf-cf9f-4de5-9fda-d94ce11b5fd3" alt="Image 18" width="250">
   <img src="https://github.com/user-attachments/assets/a8e12b6d-ee0e-4128-94d3-e116d60665c3" alt="Image 19" width="150">
   <img src="https://github.com/user-attachments/assets/d2b44c1c-4ff1-402d-b40e-8357c8eadf40" alt="Image 20" width="150">
+  <img src="https://github.com/user-attachments/assets/4a5704c9-f03f-4284-9e3e-e3d4343f0032" alt="Image 21" width="150">
+  <img src="https://github.com/user-attachments/assets/af278fd4-e3e6-411c-b6b1-2f01c1b068f5" alt="Image 22" width="150">
+  <img src="https://github.com/user-attachments/assets/c7b453d5-5df4-45a3-b468-43828523216d" alt="Image 23" width="150">
+  <img src="https://github.com/user-attachments/assets/9b020b2e-2045-4ca8-a7e6-5c14fc0c7e89" alt="Image 24" width="150">
+ <img src="https://github.com/user-attachments/assets/7c91fb6b-29f2-4f97-a92c-8d2c972775f1" alt="New Image" width="150">
+ <img src="https://github.com/user-attachments/assets/5ae950ff-e3bc-4d22-af5c-2f0bd9aee9cd" alt="Latest Image" width="150">
+</div>
+
+
   <img src="https://github.com/user-attachments/assets/4a5704c9-f03f-4284-9e3e-e3d4343f0032" alt="Image 21" width="150">
   <img src="https://github.com/user-attachments/assets/af278fd4-e3e6-411c-b6b1-2f01c1b068f5" alt="Image 22" width="150">
   <img src="https://github.com/user-attachments/assets/c7b453d5-5df4-45a3-b468-43828523216d" alt="Image 23" width="150">
