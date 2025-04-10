@@ -63,7 +63,7 @@ Personality-wise, I’m a chill, laid-back ISTP 4w5. I’m into object shows (HF
 <a href="https://imonthevergeoflosingit.straw.page" style="color: blue; text-decoration: none;">strawpage</a> ..
 <a href="https://ca.pinterest.com/convertedPartypooper/" style="color: blue; text-decoration: none;">Pinterest</a> ..
 <a href="https://archiveofourown.org/users/circlewithamole" style="color: blue; text-decoration: none;">Archive of Our Own</a> ..
-<a href="https://en.pronouns.page/@circlewithamole" style="color: blue; text-decoration: none;">Pronouns Page</a> .. 
+<a href="https://pronouns.cc/@circlewithamole" style="color: blue; text-decoration: none;">Pronouns cc</a> .. 
 <a href="https://www.roblox.com/users/1715948456/profile" style="color: blue; text-decoration: none;">Roblox Profile</a> 
 <div align="center">
 
