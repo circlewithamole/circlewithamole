@@ -52,7 +52,7 @@ Personality-wise, I’m a chill, laid-back ISTP 4w5,, I’m into object shows (H
 ![image](https://github.com/user-attachments/assets/2c21e9d1-5298-4667-afe4-f96b8a138654)
 
 
-![image](https://github.com/user-attachments/assets/208a2f73-aec5-43c3-9063-d6e24800d7f6) DNI List: Homophobic, transphobic, misogynistic, misandrists, racist, sexist, ableist, pedophile, sexualizes minors, proshippers, political people,supporters of controversial people, Liam Plecak. 
+![image](https://github.com/user-attachments/assets/208a2f73-aec5-43c3-9063-d6e24800d7f6) DNI List: Homophobic, transphobic, misogynistic, misandrists, proshippers, racist, sexist, ableist, pedophile, sexualizes minors, proshippers, political people,supporters of controversial people, Liam Plecak. 
 
 ![image](https://github.com/user-attachments/assets/1681ea9a-64c0-4cea-b578-bfec135c9916)
 
