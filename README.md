@@ -1,5 +1,4 @@
 
-![biograf](https://github.com/user-attachments/assets/b1d1d3d7-104f-4bda-bf50-f82f66d2dce3)
 
 ![image](https://github.com/user-attachments/assets/4b444ea4-2aab-4153-a51b-7b7437b606f5)
 Hi, I’m Circle (or Moth, if you prefer)-- I’m an artistic, neurodivergent (autistic + ADHD) dude who loves makng all kinds of dumb stuff like drawing, painting, making questionable music, crafting, and occasionally animating which is fueled by either pure love or complete hatred, bcz that’s just how I roll
@@ -96,8 +95,5 @@ Personality-wise, I’m a chill, laid-back ISTP 4w5,, I’m into object shows (H
  <img src="https://github.com/user-attachments/assets/7c91fb6b-29f2-4f97-a92c-8d2c972775f1" alt="New Image" width="150">
  <img src="https://github.com/user-attachments/assets/5ae950ff-e3bc-4d22-af5c-2f0bd9aee9cd" alt="Latest Image" width="150">
 </div>
-
-
-![image](https://github.com/user-attachments/assets/8a241adb-a668-4b09-aff6-1a50cf2c6452)
 
 
