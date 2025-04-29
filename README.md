@@ -4,7 +4,7 @@
 Hi, I’m Circle (or Moth, if you prefer)-- I’m an artistic, neurodivergent (autistic + ADHD) dude who loves makng all kinds of dumb stuff like drawing, painting, making questionable music, crafting, and occasionally animating which is fueled by either pure love or complete hatred, bcz that’s just how I roll
 
 ![image](https://github.com/user-attachments/assets/208a2f73-aec5-43c3-9063-d6e24800d7f6)
-Personality-wise, I’m a chill, laid-back ISTP 4w5,, I’m into object shows (HFJ0NE is a fav), Roblox, Minecraft, the Backrooms, and way too much else to list. Socially, I’m hella awkward my humor is either trash or nonexistent, and I often communicate in gestures rather than words but hey, I try :P
+Personality-wise, I’m a chill, laid-back ISTP 4w5,, I’m into object shows (HFJ0NE specifically), Roblox, Minecraft, the Backrooms, and way too much else to list. Socially, I’m hella awkward my humor is either trash or nonexistent, and I often communicate in gestures rather than words but hey, I try :P
 
 ![image](https://github.com/user-attachments/assets/a86f3eb0-1fb6-4713-a462-8362c7b5ca07)
 ![image](https://github.com/user-attachments/assets/89a61b10-5df0-4368-b4d8-e44865666dd3)
