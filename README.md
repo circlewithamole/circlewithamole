@@ -6,7 +6,7 @@
 href="https://imonthevergeoflosingit.straw.page" style="color: blue; text-decoration: none;">strawpage</a> ..
 <a href="https://pronouns.cc/@circlewithamole" style="color: blue; text-decoration: none;">Pronouns cc</a> .. 
 <a
-href="https://circlewithamole.atabook.org" style="color: blue; text-decoration: none;">ataBook</a> .. 
+href="https://circlewithamole.atabook.org" style="color: blue; text-decoration: none;">ataBook</a> 
 
 
 <div align="center">
@@ -41,8 +41,8 @@ href="https://circlewithamole.atabook.org" style="color: blue; text-decoration: 
 ![image](https://github.com/user-attachments/assets/4b444ea4-2aab-4153-a51b-7b7437b606f5)Others socials if you'd like to check some: 
 <a href="https://www.tumblr.com/blog/circlewithamole" style="color: blue; text-decoration: none;">Tumblr</a> ..
 <a href="https://bsky.app/profile/circlewithamole.bsky.social" style="color: blue; text-decoration: none;">Bluesky</a> ..
-<a 
+<a  
 href="https://archiveofourown.org/users/circlewithamole" style="color: blue; text-decoration: none;">Archive of Our Own</a>
-<a
+.. <a
 href="https://www.roblox.com/users/1715948456/profile" style="color: blue; text-decoration: none;">Roblox Profile</a> 
 <div align="center">
