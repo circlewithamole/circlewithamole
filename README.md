@@ -1,61 +1,6 @@
 
 
-![image](https://github.com/user-attachments/assets/4b444ea4-2aab-4153-a51b-7b7437b606f5)
-Hi, I’m Circle (or Moth, if you prefer)-- I’m an artistic, neurodivergent (autistic + ADHD) dude who loves makng all kinds of dumb stuff like drawing, painting, making questionable music, crafting, and occasionally animating which is fueled by either pure love or complete hatred, bcz that’s just how I roll
-
-![image](https://github.com/user-attachments/assets/208a2f73-aec5-43c3-9063-d6e24800d7f6)
-Personality-wise, I’m a chill, laid-back ISTP 4w5,, I’m into object shows (HFJ0NE specifically), Roblox, Minecraft, the Backrooms, and way too much else to list. Socially, I’m hella awkward my humor is either trash or nonexistent, and I often communicate in gestures rather than words but hey, I try :P
-
-![image](https://github.com/user-attachments/assets/a86f3eb0-1fb6-4713-a462-8362c7b5ca07)
-![image](https://github.com/user-attachments/assets/89a61b10-5df0-4368-b4d8-e44865666dd3)
-![image](https://github.com/user-attachments/assets/8ec268c8-043f-48ee-b899-f8b1c332ee9f)
-![image](https://github.com/user-attachments/assets/ce474a89-bb2d-4a1b-a5f9-e51cb3192959)
-![image](https://github.com/user-attachments/assets/41b09cb8-4f91-4309-b85e-711f026e8cae)
-![image](https://github.com/user-attachments/assets/30a7bbc6-808c-4cc0-91c9-3b78808c2c60)
-
-
-![image](https://github.com/user-attachments/assets/208a2f73-aec5-43c3-9063-d6e24800d7f6) things you gotta know when you interact with me:
-
-- I’m awkward in chats. I’m most confident talking to people I’m close with, and I can get really quiet sometimes. If I go silent, don’t worry I don’t mind if you do the same
- 
--  On PonyTown, feel free to interact or c + h with me! Cuddling with people is fun, so don’t be shy! :D
- 
-- If ur gonna make a joke I’d suggest you keep it appropriate because i’m a minor. And honestly, it’s just common sense not to be weird with people you don’t know
-
-- I might not respond to texts right away. If I’m off-tab or busy, whispering me is the best way to get my attention
-
-- My humor is weird (and sometimes bad) if I make a joke that doesn’t land, just pretend it did /j
-
-
-- I’m not great at small talk, if I respond dryly or don’t say much, it’s not because I don’t like you I just don’t always know what to say
-
-- If I don’t care about something, my reaction might be underwhelming. Please don’t take it personally!
-
-- If I seem to ignore a message, I probably missed it or didn’t know how to respond. Feel free to poke me about it! :<
-
-- Don’t push me to do things. I have my own boundaries, and I wont hesitate to block you if you cross them.
-    
-- I can’t multitask conversations. If I’m talking to someone else, just wait until I’m done
-   
-- I don’t allow copying my ponies, but it’s fine to take inspiration :-)
-
-- I usually check out other people's pages and sometimes sign there. If you notice a small doodle on your gimmis, you'll know who it is (just kidding, maybe o_o)
-
- ![image](https://github.com/user-attachments/assets/30a7bbc6-808c-4cc0-91c9-3b78808c2c60)
-  ![image](https://github.com/user-attachments/assets/41b09cb8-4f91-4309-b85e-711f026e8cae)
-  ![image](https://github.com/user-attachments/assets/ce474a89-bb2d-4a1b-a5f9-e51cb3192959)
-  ![image](https://github.com/user-attachments/assets/89a61b10-5df0-4368-b4d8-e44865666dd3)
-  ![image](https://github.com/user-attachments/assets/a86f3eb0-1fb6-4713-a462-8362c7b5ca07)
-
-
-![image](https://github.com/user-attachments/assets/2c21e9d1-5298-4667-afe4-f96b8a138654)
-
-
-![image](https://github.com/user-attachments/assets/208a2f73-aec5-43c3-9063-d6e24800d7f6) DNI List: Homophobic, transphobic, misogynistic, misandrists, proshippers, racist, sexist, ableist, pedophile, sexualizes minors, proshippers, political people,supporters of controversial people, Liam Plecak. 
-
-![image](https://github.com/user-attachments/assets/1681ea9a-64c0-4cea-b578-bfec135c9916)
-
-
+![image](https://github.com/user-attachments/assets/4b444ea4-2aab-4153-a51b-7b7437b606f5) Hello! i suggest you check my prounouns.cc for more info, thank you for stopping by and taking a moment towards checking out my page,, (*´-`)
 
 <a href="https://www.tumblr.com/blog/circlewithamole" style="color: blue; text-decoration: none;">Tumblr</a> ..
 <a href="https://bsky.app/profile/circlewithamole.bsky.social" style="color: blue; text-decoration: none;">Bluesky</a> ..
