@@ -2,13 +2,9 @@
 
 ![image](https://github.com/user-attachments/assets/4b444ea4-2aab-4153-a51b-7b7437b606f5) Hello! i suggest you check my prounouns.cc for more info, thank you for stopping by and taking a moment towards checking out my page,, (*´-`)
 
-<a href="https://www.tumblr.com/blog/circlewithamole" style="color: blue; text-decoration: none;">Tumblr</a> ..
-<a href="https://bsky.app/profile/circlewithamole.bsky.social" style="color: blue; text-decoration: none;">Bluesky</a> ..
-<a href="https://imonthevergeoflosingit.straw.page" style="color: blue; text-decoration: none;">strawpage</a> ..
-<a href="https://archiveofourown.org/users/circlewithamole" style="color: blue; text-decoration: none;">Archive of Our Own</a> ..
+<a
+href="https://imonthevergeoflosingit.straw.page" style="color: blue; text-decoration: none;">strawpage</a> ..
 <a href="https://pronouns.cc/@circlewithamole" style="color: blue; text-decoration: none;">Pronouns cc</a> .. 
-<a href="https://www.roblox.com/users/1715948456/profile" style="color: blue; text-decoration: none;">Roblox Profile</a> 
-<div align="center">
 
 
 <div align="center">
@@ -40,4 +36,11 @@
  <img src="https://github.com/user-attachments/assets/5ae950ff-e3bc-4d22-af5c-2f0bd9aee9cd" alt="Latest Image" width="150">
 </div>
 
-
+![image](https://github.com/user-attachments/assets/4b444ea4-2aab-4153-a51b-7b7437b606f5)Others socials if you'd like to check some: 
+<a href="https://www.tumblr.com/blog/circlewithamole" style="color: blue; text-decoration: none;">Tumblr</a> ..
+<a href="https://bsky.app/profile/circlewithamole.bsky.social" style="color: blue; text-decoration: none;">Bluesky</a> ..
+<a 
+href="https://archiveofourown.org/users/circlewithamole" style="color: blue; text-decoration: none;">Archive of Our Own</a>
+<a
+href="https://www.roblox.com/users/1715948456/profile" style="color: blue; text-decoration: none;">Roblox Profile</a> 
+<div align="center">
