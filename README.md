@@ -1,5 +1,5 @@
+![image](https://github.com/user-attachments/assets/dbdf9728-43a6-4f06-b6b4-723a602cca40)
 
-![Screen Shot 2025-05-17 at 10 09 02 PM](https://github.com/user-attachments/assets/09ee73a0-974b-46ec-b85b-4e4770939367)
 
 ![image](https://github.com/user-attachments/assets/4b444ea4-2aab-4153-a51b-7b7437b606f5) Hello! i suggest you check
  my prounouns.cc for more info, thank you for stopping by and taking a moment towards checking out my page :D
